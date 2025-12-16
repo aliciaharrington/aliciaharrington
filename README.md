@@ -3,7 +3,7 @@ I'm **Ran Alicia Jing** from Beijing, China. My Chinese name is **Ran Jing (景�
 
 Here's some more concrete information about me! ☀️
 ### Research Interest
-1. 🌱 As a undergraduate student who major in Biomass material and energy, I'm and I'll probably doing research related to biomass hydrogel or bio-pulping under the supervision of teachers in our college. Recently I'm doing some literature retrieving work on biomass hydrogel in a research team which include tutors from either BFU or THU, covering students from my major and those major in artificial intelligence. In the following period, I'll also participate in experimental hands-on and data analysis.
+1. 🌱 As a undergraduate student who major in Biomass material and energy, I'm and I'll probably be doing research related to biomass hydrogel or bio-pulping under the supervision of teachers in our college. Recently I'm doing some literature retrieving work on biomass hydrogel in a research team which include tutors from either BFU or THU, covering students from my major and those major in artificial intelligence. In the following period, I'll also participate in experimental hands-on and data analysis.
 2. ✨ I'm really into astrophysics. To be more detailed, **star formation, weak gravitational lensing, interstellar medium (ISM), galactic structure and evolution, binary stars, AGNs**, ect. TBC
 3. 🖥️ What's more, machine learning and LLM also attract me to some extent. I guess that would be the work of our teacher of the course _An Introduction to Artificial Intelligence_
 
