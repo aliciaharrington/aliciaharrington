@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm **Ran Alicia Jing** from Beijing, China. My Chinese name is **Ran Jing (景然)**. Sophomore student in Beijing Forestry University （北京林业大学）, currently major in Biomass material and energy. In undergraduate stage, I'll be doing some research on **biomass hydrogel**. However, given that I've been passionate about astronomy and astrophysics since I was littel, I hope I can study astrophysics in my post-graduate stage, which is a goal I've been making effort from now. (e.g. I've accomplished a research project in the light of Elite Program under the supervision of Ke Wang & Fengwei Xu at **KIAA-PKU**, etc.)
+I'm **Ran Alicia Jing** from Beijing, China. My Chinese name is **Ran Jing (景然)**. Born in 2006, ♂️. Sophomore student in Beijing Forestry University （北京林业大学）, currently major in Biomass material and energy. In undergraduate stage, I'll be doing some research on **biomass hydrogel**. However, given that I've been passionate about astronomy and astrophysics since I was littel, I hope I can study astrophysics in my post-graduate stage, which is a goal I've been making effort from now. (e.g. I've accomplished a research project in the light of Elite Program under the supervision of Ke Wang & Fengwei Xu at **KIAA-PKU**, etc.)
 
 Here's some more concrete information about me! ☀️
 ### Research Interest
