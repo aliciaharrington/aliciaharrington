@@ -21,7 +21,14 @@ Here's some more concrete information about me! ☀️
 - TBC
 
 ### In case you wanna know more~💖
-Love 🏐**VOLLEYBALL**! (I serve as the first libero in my school team); Love **CODING!** You wouldn't know how excited I'm gonna be when I open my Jupyter Notebook! Love **Karaoke**! Sing those favorite songs is always relishing; Love **Electronic music**! (especially Tropical House, Hardcore, Complectro, Psychedelic electro, etc. I probably fancy colorful music). 
+Love 🏐**VOLLEYBALL**! (I serve as the first libero in my school team); 
+
+Love **CODING!** You wouldn't know how excited I'm gonna be when I open my Jupyter Notebook! 
+
+Love **Karaoke**! Sing those favorite songs is always relishing; 
+
+Love **Electronic music**! (especially Tropical House, Hardcore, Complectro, Psychedelic electro, etc. I probably fancy colorful music). 
+
 <font color='purple'>INTJ</font>. 
 
 ---
